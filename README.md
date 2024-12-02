@@ -9,4 +9,5 @@
 
 ![Näyttökuva 2024-11-07 123221](https://github.com/user-attachments/assets/31272a5f-e9ab-4475-b6bb-c62bbe91ae45)
 
-![Näyttökuva 2024-11-07 124857](https://github.com/user-attachments/assets/ecb66c45-b1f2-4ee3-86a5-4ca63c661a1a)
+
+![pulseoximeter_page-0001](https://github.com/user-attachments/assets/e412c1fe-5c56-41d7-86ab-8e11c6380968)
